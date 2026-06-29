@@ -1,4 +1,4 @@
-# 
+# 安全 Adobe InDesign 预设 Mac OS版 | 顶级 Adobe InDesign 预设 PC Windows版。集成 稳定器 和 湿混，跨平台性能最大化。
 
 
 
